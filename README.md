@@ -6,7 +6,7 @@
 - 💞️ I'm open for internship role as a data analyst
 - 📫 you can reach me on https://www.linkedin.com/in/hakeemat-jatto-46548819b/ 
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I love cooking 
+- ⚡ Fun fact: I love expanding my knowledge in learning new things
 
 <!---
 hakeemat5/hakeemat5 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
